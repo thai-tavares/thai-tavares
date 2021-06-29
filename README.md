@@ -1,0 +1,5 @@
+- 🤟🏼 Hi, I’m @thai-tavares
+- 📌 I'm interested in learning more about technology and development.
+- 🚀 I'm currently learning about Python through Coursera and JavaScript with the Google app.
+- 💻 I'm a tech passionate tech recruiter and that's why I'm here. Anyone who wants to chat, I'll love to learn from you.
+- 📫 You can reach me at tavares.thais@hotmail.com
